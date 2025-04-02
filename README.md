@@ -39,7 +39,7 @@
 
 > By this act, I declare this space sacred.\
 > Let it be a place of clarity, peace, and power. So mote it be.\
-> 「私はこの儀式をもって、ここを聖なる場と宣言する。心の平和、力の源となるように。そうあれかし。」
+> 「私はこの儀式をもって、ここを聖なる場と宣言する。ここが明晰さ、平和、そして力の宿る場となるように。そうあれかし。」
 
 終了後は水を入れた器を捧げて、祈り、終了します。
 
